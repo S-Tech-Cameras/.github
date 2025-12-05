@@ -1,0 +1,1 @@
+The future of traffic data collection is here. Sentra 4K, winner of an Australian Good Design Award in the Product Design – Commercial and Industrial category, sets a new benchmark for performance, reliability, and sustainability. 
